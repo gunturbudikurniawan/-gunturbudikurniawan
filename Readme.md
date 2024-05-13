@@ -1,4 +1,4 @@
-[Linkedin](https://www.linkedin.com/in/gunturbudikurniawan/).
+[Linkedin](https://www.linkedin.com/in/guntur-budi-kurniawan-794613172/).
 
 <p align="left">
 <a href="https://github.com/gunturbudikurniawan">
